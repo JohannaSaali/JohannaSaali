@@ -1,4 +1,4 @@
-## Welcome👋
+## 🌞
 
 I am Johanna, a PhD student in Genetics & Bioinformatics at IKMB Kiel, focusing on the gut microbiome and studying how our genetics interact with gut microbes in health and disease. 
 
