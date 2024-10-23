@@ -4,6 +4,10 @@ I am Johanna, a PhD student in Genetics & Bioinformatics at IKMB Kiel, focusing 
 
 💌 j.saalfrank@ikmb.uni-kiel.de
 📌 Kiel, Germany
+👩‍💻 www.ikmb.uni-kiel.de/research-group/genetics-bioinformatics/
+
+
+
 
 
 
